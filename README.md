@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-How to reach me: Telegram
+How to reach me: [Telegram](https://t.me/Aslanisl)
 
 Telegram Contests:
 
