@@ -2,6 +2,8 @@
 
 How to reach me: [Telegram](https://t.me/Aslanisl)
 
+Work in the [Sravni](https://www.sravni.ru/) team as Android dev. 
+
 Telegram Contests:
 
 + [Telegram Sticker App Contest 2021](https://contest.com/sticker-app/entry2935) - 3nd place
